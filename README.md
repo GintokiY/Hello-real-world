@@ -1,2 +1,2 @@
 # Hello-real-world
-This is where I started learning stuff seriously.
+Started coming into the real world.
